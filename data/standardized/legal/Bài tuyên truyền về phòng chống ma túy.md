@@ -3,12 +3,6 @@
 
 Bài tuyên truyền về phòng chống ma túy
 
-Đăng nhập (http://cainhum.vinhlong.gov.vn/login?returnurl=%2fxem-chi-tiet-tin-tuc%2fid%2f286015)
-
-(cid:0)
-Nhập Từ Khóa Tìm Kiếm
-
-(https://cas.vinhlong.gov.vn/)
 
 (/)
 
@@ -29,10 +23,6 @@ hóa,  tình  trạng  thanh  thiếu  niên  vi  phạm  pháp  luật  ngày  
 gian  gần  đây  các  băng,  ổ  nhóm  tội  phạm  về  ma  túy  xuyên  quốc  gia  chọn  địa  bàn
 nước ta là địa bàn trung chuyển ma túy từ nước ta sang các nước thứ ba nên vấn đề
 ma túy là một vấn đề hết sức nóng bỏng, ma túy là hiểm họa của dân tộc.
-
-https://cainhum.vinhlong.gov.vn/xem-chi-tiet-tin-tuc/id/286015
-
-1/12
 
 
 
@@ -289,8 +279,6 @@ Về tác hại, “Cỏ mỹ” có khả năng gây nghiện rất cao, rất 
 người. Đặc biệt, ảnh hưởng của chúng đối với não bộ còn mạnh hơn rất nhiều so với cần sa.
 
 Không  ít  trường  hợp  sử  dụng  cỏ  mỹ  dẫn  tới  ngộ  độc  và  gây  tử  vong.  Tuy  nhiên,  vì  thành
-
-https://cainhum.vinhlong.gov.vn/xem-chi-tiet-tin-tuc/id/286015
 
 4/12
 
@@ -611,21 +599,4 @@ CÁC TIN KHÁC
 Công an xã Cái Nhum tổ chức Lễ ra quân cao điểm tấn công, trấn áp tội phạm, bảo đảm an ninh,
 trật tự phục vụ Đại hội đại biểu toàn quốc lần thứ XIV của Đảng và Tết Nguyên đán Bính Ngọ 2026
 (https://cainhum.vinhlong.gov.vn/Default.aspx?tabid=25030&ID=291642) (24/12/2025)
-
-Công an xã Cái Nhum tổ chức hội nghị Công an lắng nghe ý kiến Nhân dân năm 2025
-(https://cainhum.vinhlong.gov.vn/Default.aspx?tabid=25030&ID=288560) (17/11/2025)
-
-Công an xã Cái Nhum: Nổ lực phục vụ nhân dân trong công tác cấp căn cước công dân sau sáp
-nhập các xã (https://cainhum.vinhlong.gov.vn/Default.aspx?tabid=25030&ID=286839)
-(28/10/2025)
-
-
-
-Giữ vững bình yên từng ấp, khóm-Phát huy vai trò nòng cốt của lực lượng Công an xã Cái Nhum
-trong phòng chống tội phạm (https://cainhum.vinhlong.gov.vn/Default.aspx?
-tabid=25030&ID=286858) (28/10/2025)
-
-https://cainhum.vinhlong.gov.vn/xem-chi-tiet-tin-tuc/id/286015
-
-8/12
 
